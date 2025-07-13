@@ -224,7 +224,7 @@ Thank You For Reading.
 
 I’m interested in a Data Analyst role in an organization where I can showcase my skills, take more responsibilities, continue to learn, an organization that I can grow with, where my work will be highly beneficial to the organization.
 
-You can reach me on Emmanueldamilare45@gmail.com
+You can reach me on emmanueldamilare45@gmail.com
 
 THANK YOU
 
